@@ -1,16 +1,21 @@
-## Hi there 👋
+&nbsp;
+<div align="center">
+ 
+![](https://komarev.com/ghpvc/?username=moidix&label=🗝&color=2596be&abbreviated=true)
 
-<!--
-**femIock/femIock** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+<div>
+<div align="center">
+♰
+<div>
+<img src="https://i.postimg.cc/XvpDBkVg/femlockryusae.png" width="350" height="500" />
 
-Here are some ideas to get you started:
+<div align="center">
+ 
+viva ː lamprey ː asa + [she he none](https://rentry.co/redirect)
 
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+femlock ceo + ns kunigami riako, en/fr/esp
+
+[rentry](https://rentry.co/wrecked) [sign¹](https://alterspring.org/dirk) [sign²](https://malice.atabook.org) [rblx](https://www.roblox.com/users/5809349077/profile) [lastfm](https://last.fm/user/pawincess)
+ 
+![](https://spotify-github-profile.kittinanx.com/api/view.svg?uid=314mkicxlkkdu2xbfq5sn4qlspni&cover_image=true&theme=natemoo-re&show_offline=true&background_color=121212&interchange=false&bar_color=1448c2&bar_color_cover=false)
+<div>
