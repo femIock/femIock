@@ -11,7 +11,7 @@
 
 <div align="center">
  
-viva ː lamprey ː asa + [she he none](https://rentry.co/redirect)
+sae, viva, lamprey etc + [she he none](https://rentry.co/redirect)
 
 femlock ceo + ns kunigami riako, en/fr/esp
 
