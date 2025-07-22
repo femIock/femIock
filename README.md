@@ -15,7 +15,7 @@ sae, conny [etc](https://rentry.co/redirect) + [she he none](https://rentry.co/r
 
 femlock ceo + ns kunigami riako, en/fr/esp
 
-[rentry](https://rentry.co/wrecked) [sign](https://malice.atabook.org) [rblx](https://www.roblox.com/users/5809349077/profile) [lastfm](https://last.fm/user/femlock)
+[rentry](https://rentry.co/fmlk) [sign](https://malice.atabook.org) [rblx](https://www.roblox.com/users/5809349077/profile) [lastfm](https://last.fm/user/femlock)
  
 ![](https://spotify-github-profile.kittinanx.com/api/view.svg?uid=314mkicxlkkdu2xbfq5sn4qlspni&cover_image=true&theme=natemoo-re&show_offline=true&background_color=121212&interchange=false&bar_color=1448c2&bar_color_cover=false)
 <div>
