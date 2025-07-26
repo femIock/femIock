@@ -9,7 +9,7 @@
 
 femlock ceo 🌸 hiori riako
 
-fags⠀⠀[mika](https://github.com/social-tragedy) [wifey](https://github.com/milliona1re) [onyxsilly](https://github.com/undealost) [mar bff](https://github.com/HlRAKO) [finnara](https://github.com/fennebat)
+fags⠀⠀[mika](https://github.com/social-tragedy) [wifey](https://github.com/milliona1re) [onyxsilly](https://github.com/undeadlost) [mar bff](https://github.com/HlRAKO) [finnara](https://github.com/fennebat)
 
 [drives a SUSPICIOUS WHITE VAN](https://github.com/vanyamisa) [squid game](https://github.com/curetill) [kero](https://github.com/ruidannya)
 <div>
