@@ -7,12 +7,14 @@
 
 <div align="center">
 
-femlock ceo 🕸 gee way #1 fan
+femlock ceo 🕸 stan or skink
 
 <div>
  
-[sign](https://alterspring.org/ugly)　　[info¹](https://rentry.co/wrecked)　　[info²](https://rentry.co/redirect)　　[rblx](https://www.roblox.com/users/5809349077/profile) 　[lastfm](https://last.fm/user/stamnarsh)
- 
+[info](https://rentry.co/wrecked)　　[rblx](https://www.roblox.com/users/5809349077/profile) 　[fm](https://last.fm/user/stamnarsh)
+
+<img src="https://i.postimg.cc/R0nbXHB4/guu.png" width="150">
+
 ![](https://spotify-github-profile.kittinanx.com/api/view.svg?uid=314mkicxlkkdu2xbfq5sn4qlspni&cover_image=true&theme=natemoo-re&show_offline=true&background_color=121212&interchange=false&bar_color=1448c2&bar_color_cover=false)
 
 <div>
